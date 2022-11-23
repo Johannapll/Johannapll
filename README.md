@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Johannapll
+- 👀 I’m interested in travelling and art
+- 🌱 I’m currently learning web design
